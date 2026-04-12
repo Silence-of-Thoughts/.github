@@ -1,13 +1,13 @@
 # Nebel & Silence of Thoughts
 
-## Nebel courtesy appear as
+## Nebel dawns through
 - André K.
 - Jochen Smithee
 - Martin W.
 - Ralph K.
 - Volker of Death
 
-## Silent Thoughts are brought to you by
+## Silence of Thoughts is made by
 - Alan Smithee
 - Ali Bengali
 - Flo Josephus
