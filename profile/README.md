@@ -18,11 +18,11 @@
 https://github.com/Silence-of-Thoughts/Sounds-of-Silence/tree/main/download
 
 ---
-Silence of Thoughts nutzt aussprüchlich Frieden, Freundschaft und Liebe
-und Mesa-Boogie Triple Rectifier Hartke Marshall Ibanez Zildijan Bass Collection Boss Thomann
+Nebel und Silence of Thoughts setzen auf Frieden, Freundschaft und Liebe Mesa-Boogie Triple Rectifier Hartke Marshall Ibanez Zildijan Bass Collection Boss Thomann
 
 ---
-(c) 1994 - 2026 - Silence of Thoughts. Während dieser Scheunenproduktion kamen keine Tiere zu schaden. Cus@Zebra.
+(c) 1994 - 2026 - Nebel & Silence of Thoughts.
+Während dieser Scheunenproduktion kamen keine Tiere zu schaden. CUs@Zebra.
 
 <!--  **Here are some ideas to get you started:**
 - 🙋‍♀️ A short introduction - what is your organization all about?
