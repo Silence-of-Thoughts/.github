@@ -7,7 +7,7 @@
 - Ralph K.
 - Volker of Death
 
-## Silence of Thoughts is made by
+## Silence of Thoughts spin through
 - Alan Smithee
 - Ali Bengali
 - Flo Josephus
