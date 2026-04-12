@@ -1,14 +1,20 @@
-# Silence of Thoughts
-## Silent Thoughts are brought to you by
+# Nebel & Silence of Thoughts
 
-- Alan _Guitar Murphey_ Smitheee
+## Nebel courtesy appear as
+- André K.
+- Jochen Smithee
+- Martin W.
+- Ralph K.
+- Volker of Death
+
+## Silent Thoughts are brought to you by
+- Alan Smithee
 - Ali Bengali
 - Flo Josephus
 - Volker of Death
-- Taj Bender Benderino
+- Taj Benderino
 
 # Download
-
 https://github.com/Silence-of-Thoughts/Sounds-of-Silence/tree/main/download
 
 ---
