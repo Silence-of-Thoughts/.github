@@ -1,10 +1,4 @@
-# Hi there 👋
 # Silence of Thoughts
-
-# Download
-
-https://github.com/Silence-of-Thoughts/Sounds-of-Silence/tree/main/download
-
 ## Silent Thoughts are brought to you by
 
 - Alan _Guitar Murphey_ Smitheee
@@ -12,6 +6,10 @@ https://github.com/Silence-of-Thoughts/Sounds-of-Silence/tree/main/download
 - Flo Josephus
 - Volker of Death
 - Taj Bender _felt in Love with Ali in the Year of Psychotic Waltz._
+
+# Download
+
+https://github.com/Silence-of-Thoughts/Sounds-of-Silence/tree/main/download
 
 ---
 Silence of Thoughts nutzt aussprüchlich Frieden, Freundschaft und Liebe
